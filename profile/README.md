@@ -1,0 +1,1 @@
+インターン用GitHub Organizationへようこそ。詳細はMoodleを確認してください。
